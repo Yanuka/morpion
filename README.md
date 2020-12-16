@@ -3,5 +3,5 @@
 Coucou Madame Bennabou, mettez nous 20 svp
 
 Cordialement,
-Alexandre Chaillet 
+Alexandre Chaillet et 
 Maxime Le Texier
